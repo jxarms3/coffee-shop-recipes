@@ -4,7 +4,7 @@
 
 ## Caramel Sauce Ingredients
 
-- 1/2 cup brown sugar
+- 1/2 cup white sugar
 - 2 Tbsp butter
 - 1/4 cup half-and-half
 - Pinch of salt
